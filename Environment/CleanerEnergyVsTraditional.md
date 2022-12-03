@@ -2,4 +2,4 @@
 
 #### (Environmental degradation -> A matter of life and death -> More urgent concern & Individual actions make a difference)
 
-To begin with, environmental problems are very urgent, and people need to take action immediately. It is a well-known fact that the environment is a matter of life and death for many people in the globe. The consequences of environmental degradation not only hit close to home but also affect human beings all over the planet. Thus, people should use alternative energy sources to protect the environment. 
+To begin with, environmental problems are very urgent, and people need to take action immediately. It is a well-known fact that the environment is a matter of life and death for many people in the globe. The consequences of environmental degradation not only hit close to home but also affect human beings all over the planet. Thus, people should use alternative energy sources to protect the environment. For instance, 
