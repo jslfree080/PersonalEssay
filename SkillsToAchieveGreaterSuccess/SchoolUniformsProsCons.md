@@ -2,4 +2,4 @@
 
 #### (Wear school uniforms -> Develop social skills -> Achieve greater success in the future)
 
-To begin with, when students wear their school uniforms, they can achieve greater success in the future. This is because people develop their social skills by doing such activity. People tend to be more successful when they obtain these abilities in their lives. Therefore, wearing school uniforms is necessary to differentiate oneself from others.
+To begin with, when students wear their school uniforms, they can achieve greater success in the future. This is because people develop their social skills by doing such activity, and people tend to be more successful when they obtain these abilities in their lives. Therefore, wearing school uniforms is necessary to differentiate oneself from others.
